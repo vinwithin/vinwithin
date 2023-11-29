@@ -1,6 +1,6 @@
 ### Hi there 👋
 My Name is Kelvin Adinata.\
-Jika tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/kelvin-adinata-b26997229/) ku ya. hehe:)
+If you are interested in getting to know me, please follow the my account [Linkedin](https://www.linkedin.com/in/kelvin-adinata-b26997229/). hehe:)
 
 
 
