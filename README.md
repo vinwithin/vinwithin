@@ -5,7 +5,7 @@ If you are interested in getting to know me, please follow the my account [Linke
 
 
 - 🔭 I’m currently student on Jambi University
-- 🌱 I’m currently learning Cloud Computing at Bangkit Academy 2023
+- Cloud Computing at Bangkit Academy 2023
 - Web Developer Intern Disdik Prov Jambi Juli - September 2024
 
   
