@@ -7,6 +7,8 @@ If you are interested in getting to know me, please follow the my account [Linke
 - 🔭 I’m currently student information system at Jambi University
 - Cloud Computing at Bangkit Academy 2023
 - Web Developer Intern Disdik Prov Jambi Juli - September 2024
+- Junior Web Developer Certified
+- Junior Network Administrator Certified
 
   
 ### Github Statistic
