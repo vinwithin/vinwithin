@@ -10,7 +10,7 @@ If you are interested in getting to know me, please follow the my account [Linke
 - Junior Web Developer Certified
 - Junior Network Administrator Certified
 - Programmer at UPATIK Universitas Jambi -> Now
-- Developer HRZ Group Company -> Now
+- Developer at HRZ Group Logistik Company -> Now
 
   
 ### Github Statistic
