@@ -9,8 +9,7 @@ If you are interested in getting to know me, please follow the my account [Linke
 - Web Developer Intern Disdik Prov Jambi Juli - September 2024
 - Junior Web Developer Certified
 - Junior Network Administrator Certified
-- Programmer at UPATIK Universitas Jambi -> Now
-- Web Developer Freelance at HRZ Group Logistic Company -> Now
+
 
   
 ### Github Statistic
